@@ -11,6 +11,8 @@
 
 ## Section 1: The Begining
 
+### Chapter 1:
+
 ```plaintext
    |\---/|
    | ,_, |
