@@ -9,7 +9,7 @@
 3. Exile
 4. Rebirth
 
-## Chapter 1: The Begining
+## Section 1: The Begining
 
 ```plaintext
    |\---/|
