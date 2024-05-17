@@ -5,7 +5,7 @@
 **Table of Contents**
 
 1. The Beginning
-   - Section 1.1
+   - Early Life and 
    - 
 2. Genesiva
 3. Exile
