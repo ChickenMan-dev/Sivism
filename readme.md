@@ -37,3 +37,7 @@ _by Cohen and Luce_
 > ### Step 3
 >
 > You may never harm a cat.
+>
+> ### Step 4
+>
+> Treat each other and cats as equals
