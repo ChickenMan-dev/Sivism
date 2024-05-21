@@ -17,4 +17,4 @@ Siva was born an ordinary kitten. But her mind was divine. She had a mind like a
 
 #### Part 2
 
-Siva was carried into a bright room with 
+Siva was carried into a bright room with another human in blue wearing rubber gloves 
