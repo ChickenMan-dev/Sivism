@@ -19,10 +19,18 @@ Siva sat in the cage, her mind overcrowded by all the new noises and sounds, she
 
 #### Part 2
 
-Siva was carried into a bright room with another human in blue wearing rubber gloves. She was placed on a cold metal table the human that had taken her from her cage quickly held her down and a sleep gas mask was placed on her face. She wiggled and shook trying to struggle out of the human's grasp as the gas filled her nostrils she could feel herself fading to her meditation world. Something was different this time in her mind it was dark except for an eerie glow 
+Siva was carried into a bright room with another human in blue wearing rubber gloves. She was placed on a cold metal table the human that had taken her from her cage quickly held her down and a sleep gas mask was placed on her face. She wiggled and shook trying to struggle out of the human's grasp as the gas filled her nostrils she could feel herself fading to her meditation world. Something was different this time in her mind it was dark except for an eerie glow illuminating a trail of roots. She walked along the path
 
 ## Traditions/Holiday
 
 > ### Messenger Day
 >
-> Pay respects to your cat,
+> Pay respects to your cat in hopes that Siva will reward you
+>
+> ### Shower Day
+>
+> Give your cat a bath, because it is dirty.
+>
+> ### Meow Painting
+>
+> Paint a model cat, and worship it
