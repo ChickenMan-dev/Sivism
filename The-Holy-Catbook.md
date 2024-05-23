@@ -19,4 +19,4 @@ Siva sat in the cage, her mind overcrowded by all the new noises and sounds, she
 
 #### Part 2
 
-Siva was carried into a bright room with another human in blue wearing rubber gloves. She was placed on a cold metal table
+Siva was carried into a bright room with another human in blue wearing rubber gloves. She was placed on a cold metal table the human that had taken her from her cage quickly held her down and a sleep gas mask was placed on her face. She wiggled and shook trying to struggle out of the humans grasp 
